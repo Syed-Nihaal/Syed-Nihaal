@@ -1,3 +1,3 @@
 Hi, 
-  I am Syed Nihaal, a student in Grade 12 in CBSE Curriculum studying Computer Science
-  Contact - nihaal026951@gmail.com
+  I am Syed Nihaal Ahmed, a student in Middlesex University Dubai studying Bsc Honours Information Technology
+  Contact - syednihaal5@gmail.com
